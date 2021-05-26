@@ -7,4 +7,4 @@ Before this, I was working for India's biggest Ed-tech startup [Vedantu](http://
 - 🌱 I’m currently learning 3D animation & No code development
 - 💞️ If I'm not working you can find me clicking and editing pictures. Check out my [Instagram](https://www.instagram.com/anuj.png/) for more.
 - 🐥 Find me on [Twitter](https://twitter.com/anujbhavsar50)
-- 📫 You can reach out to me on bhavsar.anuj50@gmail.com
+- 📫 Reach out to me on bhavsar.anuj50@gmail.com
