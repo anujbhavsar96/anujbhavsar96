@@ -1,6 +1,6 @@
 # Hi, I’m Anuj 👋, a Designer from India📍
 
-### Currently, I am working as a Product Designer at [Forem](https://www.forem.com/). We are working towards an open-source platform to empower creators & communities.
+### Currently, I am working as a Product Designer at [Forem 🌱](https://www.forem.com/). We are working towards an open-source platform to empower creators & communities.
 
 Before this, I was working for India's biggest Ed-tech startup [Vedantu](http://www.vedantu.com), where I've worked for designing an experience for early learning education.
 
